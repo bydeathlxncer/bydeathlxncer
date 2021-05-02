@@ -1,1 +1,1 @@
-bem vindo ao lado alternativo
+🃏bem vindo ao lado alternativo🃏
